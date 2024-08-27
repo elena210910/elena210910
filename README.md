@@ -1,4 +1,4 @@
 - 👋 Hi, me llamo Elena
-- 👀 Soy ingeniero de datos... 🌱 
+- 👀 Soy ingeniero de datos... 🧾 
 
 
